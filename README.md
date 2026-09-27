@@ -11,7 +11,7 @@ Me interesa seguir creciendo profesionalmente en el área de tecnologías de inf
 ### 📍 Heredia, Costa Rica
 📧 **sebasjariasv@gmail.com**
 |
-[LinkedIn](www.linkedin.com/in/sebastian-arias-viquez-567a01230)
+[LinkedIn](https://www.linkedin.com/in/sebastian-arias-viquez-567a01230/)
 
 
 ---
